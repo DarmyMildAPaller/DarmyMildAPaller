@@ -2,7 +2,7 @@
 - 👀 I’m interested in drawing flowcharts
 - 🌱 I’m currently learning on coding 
 - 💞️ I’m looking to collaborate on my class mates 
-- 📫 How to reach me : Messenger 
+- 📫 How to reach me : Darmy Mild on Messenger 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I do noit find coding cool 
 
